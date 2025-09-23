@@ -27,7 +27,7 @@
   😀😜😵‍💫🚀
 
 
-![Рандомная пикча из гугла](https://www.google.com/url?sa=i&url=https%3A%2F%2Fx.com%2Frandom_google&psig=AOvVaw3jlDsAf4T6666TPKomt24g&ust=1758695587171000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCPj88eCh7o8DFQAAAAAdAAAAABAE)
+[Переход на сайт УрФу вот так вот](https://urfu.ru/ru/)
   
 
   
